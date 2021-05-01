@@ -6,5 +6,5 @@
 - 🔎 Other interests: Statistical Learning and Computer Vision
 - 📫 How to reach me: colaresmarcelo2018@gmail.com
 - 
- ->>
+
 
